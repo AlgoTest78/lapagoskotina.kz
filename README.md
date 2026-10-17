@@ -1,1 +1,0 @@
-# lapagoskotina.kz
